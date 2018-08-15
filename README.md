@@ -1,0 +1,2 @@
+# nesneler
+Resim vs için
